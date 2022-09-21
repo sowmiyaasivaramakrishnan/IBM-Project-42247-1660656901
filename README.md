@@ -1,3 +1,3 @@
-# IBM-Project-42247-1660656901
+# IBM Assignment
 vaitheshwaran assignment
-  [Tincker Cad Link](https://https://www.tinkercad.com/things/lqJkmdAfRs1)
+  [Tincker Cad Link](https://www.tinkercad.com/things/lqJkmdAfRs1)
